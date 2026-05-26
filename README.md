@@ -38,6 +38,7 @@ I am also capable of sitting with the uncomfortable nuances that arise in life.
 If any of these things are values and interests you share, or if you find the perspectives I hold on life to be something you also hold or would like to explore, I would love to meet you and potentially date you.
 
 ## Where I've been at lately with dating
+~WIP~
 Lately I've realized that I have a massive need to focus primarily on myself, my needs, and my own goals.
 I've started dipping my toes into swing dancing, and making sure I get out on the water whenever I can. I've also been making sure that I get enough rest, food, sunlight, etc.
 This might come as a surprise, but actually feels very good, and mostly very relaxing.
@@ -46,18 +47,38 @@ Keeping time for myself reserved for myself, and not something that I flex on an
 
 Trying to process, express, and find this lately has been, frankly, a bit lonely.
 
+## Thoughts about ethical non-monogamy as it pertains to me
+~WIP~
 I've seen some people on here describe themselves as being "solo poly". Frankly, I'm not sure how I feel about the term. It feels a little bit like another case of our generation reinventing a term or the wheel.
 This concept of focusing first on oneself, and then in a sense "queering" (You can get a better sense of how I'm using that word by reading this article: https://neuroqueer.com/neuroqueer-an-introduction/ ) their relationship with relationships is something that has been resonating with me lately. However, as a practical sort of person, I have to casually wonder if this isn't some convoluted way of reinventing casually dating, courtship, or otherwise attempting to utilize inhuman dating apps to recreate a sense of community... backward from the digital era.
 
 I think, also, that I hesitate to describe myself solely as "solo poly" because I think the term gives the wrong impression to others about what I it is I'm looking for in terms of a relationship, and makes it seem as if this is a more permanent relationship philosophy for me - like ones gender or sexuality. It isn't necessarily permanent. This, too, is something that I simply cannot discuss in the short spaces given on dating apps, but feels extremely relevant to portraying myself correctly to others.
 
-## Further thoughts about ethical non-monogamy as it pertains to me
+## What I'm looking for long term
+What I want in the long term is something different, but not mutually-exclusive to, my short-term desires. In the long-term what I'm looking for is a family and a community. I want a life-partner who is my best friend in the whole world. I want a few children. I want stability and mutual understanding and teamwork. I want to be surrounded by people and community that loves me and all supports one another. I want intimacy of all forms, and joy, and dance, and adventure, and fun. I want the soft joy of waking up in a tent in the cold and getting dressed, or of making breakfast for the people I love. I want cuddling up together with books on couches like we used to do when we were younger. I want to see a new generation running around the neighborhood without parents that are neurotic about the world around them. I want to support my friends and their families and to be supported back in turn by them. I want sailing adventures and meaning.
 
+But to get there we gotta go through a few things.
 
 ## What I'm looking for in the short term
+This is more important to me right now than what I am looking for in the long-term because it's more relevant. It's the SMART goals to the rest of my life and my needs and my wants.
 
-## What I'm looking for medium term
+Because right now I have to put such a strong emphasis on taking care of myself and ensuring that I am practicing the things I need to practice, I am coming to realize that I have to date quite specifically in the short term.
 
-## What I'm looking for long term
+It is important to me that we do things together, that we build a friendship together, and are involved in each-others communities. I want to be able to practice all the things I've described in the previous sections above, together. Lets go dance, or grab a coffee, or go to the library and pick out the same book to read. Or lets go sail at the boat club. This is more important to me than sex.
+
+But at the same time, I feel that I'm an adult who can be honest and positive about sex. I enjoy it, it's fun, and I think sexual compatibility is an important piece of a long-term relationship. I crave physical intimacy of both the sexual and non-sexual types. Close human connection matters to me, and has mattered to me for a long time, but is something that I haven't been able to properly explore due to the taboos that were instilled in me when I was a little kid.
+
+Because it is so hard to find people who share a similar outlook on the world as me I think that something more akin to casual dating and friendship are where I'm at right now. But I don't want to overstate it to the extent that I come off as rigid. In this sense the "solo poly" label does seem to suit me at the moment, and maybe - if the person I end up with is also poly - a long-term relationship could look a little bit more expansive and philosophically broad. But I am very demi. I get attached to people with an ease that I find frustrating within my own self, and I struggle to let go of the people I have come to see as important to me. In this sense, I think that a monogamous and more traditional-looking future is more likely to be what works for me.
+
+But while I search for my best friend in that regard, I think it makes the most sense to try to remain a little flexible, and keep things casual. Lets explore things together, lets do fun activities together. Cuddles and snuggles could be poetic and nice. Sex is fun but something I have a complex relationship with. Maybe we have long walks and talk philosophy and come to realize we can communicate well enough that we want to be around one another. Maybe we have a good time dancing and have a fun fling.
+
+In this sense, I don't see ethical non-monogamy and monogamy as mutually exclusive. One can grow into the other. Both take work and patience and love and understanding, and there is no room in either for the taking for granted of others.
 
 ## How to match with me
+If what I have written resonates with you, please try to match with me. On hinge or OKCupid that means sending me a message. I am not going to pay for these apps, they aren't worth the money. If it's something with a more hostile architecture like tinder, or you otherwise really want to make sure that I see it, you can send me an email at this address:
+
+Thompson.O.Paine.1996@protonmail.com
+
+(I made it as a throwaway for some other stuff, and will likely change it to a different throwaway later.)
+
+Send me screenshots of your profile and, ideally, a good message. If you don't include your dating profile I absolutely will ignore the email for saftey reasons. Otherwise, I hope we can have a good time!

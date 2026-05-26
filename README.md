@@ -31,7 +31,7 @@ I pride myself on trying to hold a consistent and reality-based moral philosophy
 
 From this framework, I am a leftist and will always be such. I reject Isreal, imperialism, and capitalism as inhumane constructs. I also broadly reject organized religion, but maintain a strong belief in spirituality insofar as it does not conflict with or hinger the scientific or moral process.
 
-If you consider yourself to be a "moderate" or conservative (fascist); or if you broadly don't find value in or time to critically examine yourself and the world around you then we are unlikely to get along and I would vastly prefer that you avoid me. I understand more than average about conservatism and cults, but I won't be taking it upon myself to be deprograming you within the context of a dating app. Further, if you hold these "values" you should know that you have to start the process of your own repentance before you can begin to be offerred forgiveness and welcome back into civilized society.
+If you consider yourself to be a "moderate" or conservative (fascist); or if you broadly don't find value in or time to critically examine yourself and the world around you then we are unlikely to get along and I would vastly prefer that you avoid me. I understand more than average about conservatism and cults, but I won't be taking it upon myself to deprogram you within the context of a dating app. Further, if you hold these "values" you should know that you have to start the process of your own repentance before you can begin to be offerred forgiveness and welcome back into civilized society.
 
 I am also capable of sitting with the uncomfortable nuances that arise in life.
 

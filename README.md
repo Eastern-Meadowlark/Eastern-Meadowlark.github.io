@@ -39,6 +39,7 @@ If any of these things are values and interests you share, or if you find the pe
 
 ## Where I've been at lately with dating
 **WIP**
+
 Lately I've realized that I have a massive need to focus primarily on myself, my needs, and my own goals.
 I've started dipping my toes into swing dancing, and making sure I get out on the water whenever I can. I've also been making sure that I get enough rest, food, sunlight, etc.
 This might come as a surprise, but actually feels very good, and mostly very relaxing.
@@ -49,6 +50,7 @@ Trying to process, express, and find this lately has been, frankly, a bit lonely
 
 ## Thoughts about ethical non-monogamy as it pertains to me
 **WIP**
+
 I've seen some people on here describe themselves as being "solo poly". Frankly, I'm not sure how I feel about the term. It feels a little bit like another case of our generation reinventing a term or the wheel.
 This concept of focusing first on oneself, and then in a sense "queering" (You can get a better sense of how I'm using that word by reading this article: https://neuroqueer.com/neuroqueer-an-introduction/ ) their relationship with relationships is something that has been resonating with me lately. However, as a practical sort of person, I have to casually wonder if this isn't some convoluted way of reinventing casually dating, courtship, or otherwise attempting to utilize inhuman dating apps to recreate a sense of community... backward from the digital era.
 

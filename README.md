@@ -29,7 +29,7 @@ I don't like alcohol. I don't smoke cigarettes or nicotine, and hate the smell. 
 
 I pride myself on trying to hold a consistent and reality-based moral philosophy. Science and the scientific method is important to me. I also believe that there is a single consistent moral framework that springs from understanding critically our human physical, social, and psychological needs. I strongly reject notions of moral relativeism and a non-belief in objective truth - insofar as the closest our best methods of scientific observation and factual reason can bring us to it.
 
-From this framework, I am a leftist and will always be such. I reject Isreal, imperialism, and capitalism as inhumane constructs. I also broadly reject organized religion, but maintain a strong belief in spirituality insofar as it does not conflict with or hinger the scientific or moral process.
+From this framework, I am a leftist and will always be such. I reject Isreal, imperialism, and capitalism as inhumane constructs. I also broadly reject organized religion, but maintain a strong belief in spirituality insofar as it does not conflict with or hinder the scientific or moral process.
 
 If you consider yourself to be a "moderate" or conservative (fascist); or if you broadly don't find value in or time to critically examine yourself and the world around you then we are unlikely to get along and I would vastly prefer that you avoid me. I understand more than average about conservatism and cults, but I won't be taking it upon myself to deprogram you within the context of a dating app. Further, if you hold these "values" you should know that you have to start the process of your own repentance before you can begin to be offerred forgiveness and welcome back into civilized society.
 
